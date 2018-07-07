@@ -1,2 +1,0 @@
-# tw
-HIPPOVALVE Taiwan
